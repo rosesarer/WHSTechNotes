@@ -22,3 +22,17 @@ For you: there was how i encountered the challeneg of coding and understanding i
 # october 2, 2024 
 
 One process in my life that is like computer science is my daily routine when ever i do my skin care and take a shower, the reason why i say this is because when ever i startv my skin care i start with something i have to take specifically. Just like how in computer science how a code is told to do something and grab something specifically, and computer science impacts my life by how in a daily use everyday people like me use stuff like tv and videogames and even electrical fridges amd stoves. My day to day would be different without technology by how, without technology we wouldnt have tvs and transportation nor online communication, and without them we would still be living in the stone ages looking at rocks and riding horses
+
+# october 7, 2024
+
+Job Title: lawyer
+
+Job Description: The main responsibilities of being a lawyer is how the lawyer has to get their client out of crimes situations that they say they never committed 
+
+Skills Required: java scrpt, the reason why I say this is because java script has a main thing that makes their Character or anything in the code makes them say what they need to say during court
+
+Education and Experience: you need a bachelors degree and experienced knowledge of being a lawyer
+
+Career Growth: opportunites for growth would be how in law you first work for free to see if you can handle the job and they teach you what to do when a client comes in with a case
+
+Reflection: This job interests me in computer science too because in law there are many cases where the client has used technology in their case to do certain things in order to catch how he is innocent
