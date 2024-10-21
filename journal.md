@@ -36,3 +36,10 @@ Education and Experience: you need a bachelors degree and experienced knowledge 
 Career Growth: opportunites for growth would be how in law you first work for free to see if you can handle the job and they teach you what to do when a client comes in with a case
 
 Reflection: This job interests me in computer science too because in law there are many cases where the client has used technology in their case to do certain things in order to catch how he is innocent
+
+# october 21, 2024
+
+helpful: Ai improves the health care insdustries by how ai  can do deep research into the health industries by its self, its technology is like asking a person to research something and it can be found in sec
+
+harmful: The Ai can also make it very stupid for a human to use because they can take advantage of the Ai instead of research purposes
+since theyll only want an answer.
