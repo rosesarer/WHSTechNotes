@@ -43,3 +43,9 @@ helpful: Ai improves the health care insdustries by how ai  can do deep research
 
 harmful: The Ai can also make it very stupid for a human to use because they can take advantage of the Ai instead of research purposes
 since theyll only want an answer.
+
+# october 15, 2024
+
+1. coding can improve solving problem skills by how3 coding cfan effortlessly make lots of errors along the way but we always change and analyze the problem.
+2. Understanding coding can cunderstand other technology in life because of how people effortlessly live their every day life over and overe again like in code made for their life to be programmed that way.
+3. coding enhanmces creativity by how coding can efficiently make many things come to life just by imagination and creative work skills from you head that can base on what your trying to code.
