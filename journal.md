@@ -53,3 +53,17 @@ since theyll only want an answer.
 # october 28, 2024
 
 computer science plays a huge role in the elections by how many people vote and how many numbers go up in the voting score and the biggest impact from the election would be how many polotics would affect the election and the voters that come with it. And by how the elsections are with kamala and trump, but with both sides saying some non important things, the computer voting score from the people are abrubtly unsure on who to vote on since both sides are bad.
+
+# november 4, 2024
+
+1. it is important to protect your personal information when publishing online because if someone gets your personal information they can either steal your information or hack your account.
+
+2. well steps i take arem 1 dont post personal information, 2 dont make obvious things that say too much about you, and 3 dont give out your personal data
+
+3. i have never shared any information online because i was never really influenced into doing so and if i could reflect on that now id still never give out personal information like that to no one.
+
+4.  by working in a save environment that is not in a sketchy website which is preventing from your personal information to be put out.  
+
+5. 
+
+6. 
