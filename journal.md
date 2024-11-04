@@ -63,7 +63,3 @@ computer science plays a huge role in the elections by how many people vote and 
 3. i have never shared any information online because i was never really influenced into doing so and if i could reflect on that now id still never give out personal information like that to no one.
 
 4.  by working in a save environment that is not in a sketchy website which is preventing from your personal information to be put out.  
-
-5. 
-
-6. 
