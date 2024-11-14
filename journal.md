@@ -46,7 +46,7 @@ since theyll only want an answer.
 
 # october 15, 2024
 
-1. coding can improve solving problem skills by how3 coding cfan effortlessly make lots of errors along the way but we always change and analyze the problem.
+1. coding can improve solving problem skills by how coding can effortlessly make lots of errors along the way but we always change and analyze the problem.
 2. Understanding coding can cunderstand other technology in life because of how people effortlessly live their every day life over and overe again like in code made for their life to be programmed that way.
 3. coding enhanmces creativity by how coding can efficiently make many things come to life just by imagination and creative work skills from you head that can base on what your trying to code.
 
@@ -62,4 +62,10 @@ computer science plays a huge role in the elections by how many people vote and 
 
 3. i have never shared any information online because i was never really influenced into doing so and if i could reflect on that now id still never give out personal information like that to no one.
 
-4.  by working in a save environment that is not in a sketchy website which is preventing from your personal information to be put out.  
+4.  by working in a save environment that is not in a sketchy website which is preventing from your personal information to be put out.
+
+# november 12, 2024
+
+1. the event that has been selected would be the presidential election with trump and kamala, because i choose this event is that during the election they would have stations for election votes that had their names written on them to see who voted for who, as in phython there would be a certain amount of numbers to be counted in during the score of maybe a video game or of a program.
+
+2. The reason why technologye can address this role is because during the elections people also watch what the presidents have to say on tv and how people watch as what they say. 
