@@ -69,3 +69,7 @@ computer science plays a huge role in the elections by how many people vote and 
 1. the event that has been selected would be the presidential election with trump and kamala, because i choose this event is that during the election they would have stations for election votes that had their names written on them to see who voted for who, as in phython there would be a certain amount of numbers to be counted in during the score of maybe a video game or of a program.
 
 2. The reason why technologye can address this role is because during the elections people also watch what the presidents have to say on tv and how people watch as what they say. 
+
+# november 18, 2024
+
+Technology has changed the way we grow and purchase our foods because of how nowadays we have cars that transport food and transport other goods to our houses. The reason why i say this is because the way we all live around based on technology is through apps that have been developed for the way of life for example doordash, grubhub, hubby, and home improvement. Its not like how it was back then, because back then they used horses to deliever things and cups for telephones, more in general they used their minds in their times, but now we have a phone that has available to everything in need of us. To the effects of technology, there are also no negative effects towards it. The reason why i say this is because the way technology is around us, they help us with anything in need for our home or for ourselves including other chores needed to do. 
