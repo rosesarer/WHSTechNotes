@@ -73,3 +73,17 @@ computer science plays a huge role in the elections by how many people vote and 
 # november 18, 2024
 
 Technology has changed the way we grow and purchase our foods because of how nowadays we have cars that transport food and transport other goods to our houses. The reason why i say this is because the way we all live around based on technology is through apps that have been developed for the way of life for example doordash, grubhub, hubby, and home improvement. Its not like how it was back then, because back then they used horses to deliever things and cups for telephones, more in general they used their minds in their times, but now we have a phone that has available to everything in need of us. To the effects of technology, there are also no negative effects towards it. The reason why i say this is because the way technology is around us, they help us with anything in need for our home or for ourselves including other chores needed to do. 
+
+# december 2, 2024
+
+1. What excites or concerns you about this technology?
+
+What mainly excites me about technology is how technology is the main way all of us live by, we use technology in cases of if we are cocerned or if we are in cases of danger.
+
+2.  Can you think of an innovative way this technology could be used in your field of interest?
+
+  technology could be used in  my feild of interest by the art design it makes. The reason why i say this is because many technology stuff have to deal with drawing and ai doing  and making art out of things too. 
+
+4. What ethical considerations might need to be addressed as this technology evolves?
+
+the ethnical consideratons would be that this technology may evolve to have a mind of its own, amd the reason why I say this is because of how nowadays we have our own robots and have transporting cars and ai that do things by their own will.
