@@ -87,3 +87,11 @@ What mainly excites me about technology is how technology is the main way all of
 4. What ethical considerations might need to be addressed as this technology evolves?
 
 the ethnical consideratons would be that this technology may evolve to have a mind of its own, amd the reason why I say this is because of how nowadays we have our own robots and have transporting cars and ai that do things by their own will.
+
+# december 9, 2024
+
+1.  the term brain rot had a negative effect on me with social media by how this term is used so much that it even made me wonder on about our place and future up to now and then.
+
+2.  the terms lore and slop have made me experience 2024 with a disgust feeling because these terms are mainly used stupidly to make people laugh but it really is only that little kids laugh at.
+
+3.  it is a meaningful to engage in technology because technology helps more with your developemnt in your brain including code which can help you forget about brainrot and become better.
