@@ -95,3 +95,7 @@ the ethnical consideratons would be that this technology may evolve to have a mi
 2.  the terms lore and slop have made me experience 2024 with a disgust feeling because these terms are mainly used stupidly to make people laugh but it really is only that little kids laugh at.
 
 3.  it is a meaningful to engage in technology because technology helps more with your developemnt in your brain including code which can help you forget about brainrot and become better.
+
+# december 16, 2024
+
+ Yes, I am looking forward to winter break. 
