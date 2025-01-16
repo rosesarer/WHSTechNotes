@@ -99,3 +99,21 @@ the ethnical consideratons would be that this technology may evolve to have a mi
 # december 16, 2024
 
  Yes, I am looking forward to winter break. 
+
+ # january 8, 2025
+
+ 1. looking back:
+    
+    what i did last semester was i completed all my work and focused really hard on everything that i had to do for my teachers and hung out with my favorite people and what could be improved is how i can focus more harder and have no distractions whatsoever.
+
+    2. looking ahead:
+
+  The main thing i would love to learn on and work on is how people can develope such technology from back then and how it was ussed to create nowadays technology.
+
+  3. certifications:
+
+  I am interested in a tech certification because it would help indourse intp technology in college and help my gpa rise and get into the college that i would love to get into. And what would help me reach that goal is by working more harder and focusing more in the work.
+
+  # january 13, 2025 
+
+  I would prepare myself into working more by doing alot for my industry and do a job that everyone needs rthe most and that would be makimg robots.The reason why I say this is because by making more robots can make more money and more things for people to use with these robots and it would help the economy more by how these robots can be usee for certain tasks other than AI doing everything.
