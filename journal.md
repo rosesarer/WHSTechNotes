@@ -117,3 +117,7 @@ the ethnical consideratons would be that this technology may evolve to have a mi
   # january 13, 2025 
 
   I would prepare myself into working more by doing alot for my industry and do a job that everyone needs rthe most and that would be makimg robots.The reason why I say this is because by making more robots can make more money and more things for people to use with these robots and it would help the economy more by how these robots can be usee for certain tasks other than AI doing everything.
+
+  # january 23, 2025
+
+  The goverenment iompacts on technology use by wanting to take away technology from  the people because thier community gets ruined because of that. The communities can continue operating globally by how tiktok can be protected by the world if they keep their app running for the people, and one feature and policy i would consent to doing is by making tiktok a more reliable sourced used for school and for more logical and historical information.  This situation can apply to my own projects by not letting people steal my ideas and let them address their own.
