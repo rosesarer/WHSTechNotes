@@ -121,3 +121,11 @@ the ethnical consideratons would be that this technology may evolve to have a mi
   # january 23, 2025
 
   The goverenment iompacts on technology use by wanting to take away technology from  the people because thier community gets ruined because of that. The communities can continue operating globally by how tiktok can be protected by the world if they keep their app running for the people, and one feature and policy i would consent to doing is by making tiktok a more reliable sourced used for school and for more logical and historical information.  This situation can apply to my own projects by not letting people steal my ideas and let them address their own.
+
+  # january 27, 2025 
+
+  name   car   mistake 
+  jimmy  civic  hole in the gas tank 
+  kyla    sierra  fixed wrong problem 
+  bart    carollla  stains on the carpet 
+  harrison  forestar   oil cap off
