@@ -137,3 +137,11 @@ Computers prevent collisions by the satelite of an object in the locator being k
 # feburary 18, 2025
 
 The most interesting thing i have learned last week is how society is built on nowadyas, the reason why I lsarned this is because of how our new president has banned every person from our state and made only people born in the state allowed in, this would cause a huge collision to many ofther stars which will make such an impact and out break to our society.
+
+# march 5, 2025
+
+Zara	    Telekenesis             Secure Building
+Aether	 Weather Manipulation  Prevent Assassination
+Thorne	 Invisibility	        Underwater Rescue
+Silver	 Mind Control	        Retrieve Stolen Goods
+Tangier	 Shapeshifting	         Extract Prisoner
