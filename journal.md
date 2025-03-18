@@ -145,3 +145,6 @@ Aether	 Weather Manipulation  Prevent Assassination
 Thorne	 Invisibility	        Underwater Rescue
 Silver	 Mind Control	        Retrieve Stolen Goods
 Tangier	 Shapeshifting	         Extract Prisoner
+
+# march 17, 2025
+1. The technologies that I use are an. iphone an ipad and a console, thesee phones are used everyday to use transportation and destinations wnd even play games at home. For example, i use an iphone to go on trips because on iphones they have a gps and it tracks your steps on how far you are from your desination. Thsse technologies connect to what we learn in class by how in class we use computers to find information and vocab words to learn and to study for school just as much as how a phone is used for information as well.
