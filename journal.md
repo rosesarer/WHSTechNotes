@@ -130,11 +130,11 @@ the ethnical consideratons would be that this technology may evolve to have a mi
   bart    carollla  stains on the carpet 
   harrison  forestar   oil cap off 
 
-  # feburary 3, 2025 
+  # february 3, 2025 
 
 Computers prevent collisions by the satelite of an object in the locator being known by the object. But many such as helicopters and planes werent improved for airspace collisons to not occure, the only possible solution to prevent this tragic event from happening is to make more satellites on flying objets become more noticable. The reason why I say this is because with satellites being on flying objects, this can prevent any other person from flying into the wrong zone and make any flying object noticable from a birds eye view.
 
-# feburary 18, 2025
+# february 18, 2025
 
 The most interesting thing i have learned last week is how society is built on nowadyas, the reason why I lsarned this is because of how our new president has banned every person from our state and made only people born in the state allowed in, this would cause a huge collision to many ofther stars which will make such an impact and out break to our society.
 
