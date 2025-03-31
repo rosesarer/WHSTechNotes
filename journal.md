@@ -148,3 +148,7 @@ Tangier	 Shapeshifting	         Extract Prisoner
 
 # march 17, 2025
 1. The technologies that I use are an. iphone an ipad and a console, thesee phones are used everyday to use transportation and destinations wnd even play games at home. For example, i use an iphone to go on trips because on iphones they have a gps and it tracks your steps on how far you are from your desination. Thsse technologies connect to what we learn in class by how in class we use computers to find information and vocab words to learn and to study for school just as much as how a phone is used for information as well.
+
+# march 31, 2025 
+
+The goal that I have for the 9 weeks are to pass every exam this 9 weeks and make this year end ss the best year of school by how much hard work and motiviation I put in my work and studies. 
