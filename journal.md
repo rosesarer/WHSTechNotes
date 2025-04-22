@@ -152,3 +152,7 @@ Tangier	 Shapeshifting	         Extract Prisoner
 # march 31, 2025 
 
 The goal that I have for the 9 weeks are to pass every exam this 9 weeks and make this year end ss the best year of school by how much hard work and motiviation I put in my work and studies. 
+
+# april 22, 2025
+
+Hello mswhitby I wanna thank you for all the hard work you have done for the class and thank you for teaching me about how to code without those teachings i wouldve never knew what codes and calcualtions to use and thanl you for also letting me be in your class to do your work and other work from other classes without a class like yours i dont know what coding would be thank you for all mswhitby and I hope furthur in yoir future goes well as much as you made my future well Mrs whitby, thank you.
