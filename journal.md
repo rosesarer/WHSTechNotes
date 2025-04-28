@@ -155,4 +155,8 @@ The goal that I have for the 9 weeks are to pass every exam this 9 weeks and mak
 
 # april 22, 2025
 
-Hello mswhitby I wanna thank you for all the hard work you have done for the class and thank you for teaching me about how to code without those teachings i wouldve never knew what codes and calcualtions to use and thanl you for also letting me be in your class to do your work and other work from other classes without a class like yours i dont know what coding would be thank you for all mswhitby and I hope furthur in yoir future goes well as much as you made my future well Mrs whitby, thank you.
+Hello mswhitby I wanna thank you for all the hard work you have done for the class and thank you for teaching me about how to code without those teachings i wouldve never knew what codes and calcualtions to use and thanl you for also letting me be in your class to do your work and other work from other classes without a class like yours i dont know what coding would be thank you for all mswhitby and I hope furthur in yoir oh
+
+# april 14, 2025
+
+bans are somethung that isnt beneficaial on students at all,  the reason why I say this is that many students have the mentality to change the ways abd find new ways to do things even thiugh its banned. And these policies influnece only students to break more rules and to cause chaos to the teachers, it also creates a world  for them to invent more ideas to hide things and make things worse for the teacher and the school in general. If these actions were to have been implemented in my school i would fond it supporive but yet negative for the school, because no matter what students will always find ways to do what ever is banned but even worse and id say they should do their best to create peace for the school and take out all the bad students out of the school becauee of tjeir attitude that can influence others.
