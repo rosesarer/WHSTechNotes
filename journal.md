@@ -164,3 +164,7 @@ bans are somethung that isnt beneficaial on students at all,  the reason why I s
 # may 5, 2025 
 
  1. I beleive that 100 men cant win, the reason why I say this is because a gorrilla is more invested from the wilderness. For example the gorillas are raised mainly in jungles and face survival challenegs that face threats to them. on the other hand variety of humans like men dont have that trait like a gorilla as thier strength. I believe that this is an irresponsible challenge because of how many consequences and inguries the men will have by the gorilla. and people might learn about how dangerous a challenge like this truly is knowimg tjat theyll face unfixable ingurries. And this speaks about trends spreading world wide by how a minimal person of seeing how funny something is or interesting can become a a national thing that the whole world knows of and can spread rapidly fast. For the exucation nad entertainment system there are no connections because enterainment is only for fun and games and education is learning therefore none of them are equal.
+
+# may 19, 2025
+
+yes i am ready for this summer 
