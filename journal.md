@@ -168,3 +168,7 @@ bans are somethung that isnt beneficaial on students at all,  the reason why I s
 # may 19, 2025
 
 yes i am ready for this summer 
+
+# september 2, 2025
+
+I feel like the no phones policy benefits us as doung better for our school community but also has defects for the society in all schools in texas.
