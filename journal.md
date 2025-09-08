@@ -169,6 +169,9 @@ bans are somethung that isnt beneficaial on students at all,  the reason why I s
 
 yes i am ready for this summer 
 
+# september 8, 2025
+
+computer science helps me endurse into the mechanical program, and the reason why i say this is because in being a mechanic theres technoligies such as radios and bluetooth that need tro be used in cars or other electronical things that need to be fixed.
 # september 2, 2025
 
 I feel like the no phones policy benefits us as doung better for our school community but also has defects for the society in all schools in texas.
