@@ -175,3 +175,7 @@ computer science helps me endurse into the mechanical program, and the reason wh
 # september 2, 2025
 
 I feel like the no phones policy benefits us as doung better for our school community but also has defects for the society in all schools in texas.
+
+# september 15, 2025
+
+An AI project would be somewhat of creating game developement, for example based on how gta 6 is being made, they use AI for certain things like building and pictures and even the realistic features. Many who can use  AI effectively and creatively can find mnany things simple to them but it all depends on the certain person and who they are.
