@@ -180,5 +180,5 @@ I feel like the no phones policy benefits us as doung better for our school comm
 
 An AI project would be somewhat of creating game developement, for example based on how gta 6 is being made, they use AI for certain things like building and pictures and even the realistic features. Many who can use  AI effectively and creatively can find mnany things simple to them but it all depends on the certain person and who they are.
 
-# septmeber 22, 2025 
+# september 22, 2025 
 I believits not a good idea because it doesnt serve as a good purpose for the industry 
