@@ -182,3 +182,7 @@ An AI project would be somewhat of creating game developement, for example based
 
 # september 22, 2025 
 I believits not a good idea because it doesnt serve as a good purpose for the industry 
+
+# september 30, 2025
+
+People use 67 as a joke of how a kid was at a basketball game and the team scored 67 points and once he made a video that went viral everyone started saying it and even people wrote songs about it saying how funny it is. But many peopl use it in a way that sounds unfunny though, for example based on how kids act in class they always yell out loud "67" to make everyone laugh when it isnt funny to just do that because that makes them seem corny.
