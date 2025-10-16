@@ -1,4 +1,4 @@
-
+ oth
 # september 5, 2024
 
 The video game that i love to plaay is grand theft auto, the reason why I say that grand theft auto is a game I love to play is because Grand theft auto is an open world game that can let you play many different games and be with many people. Gtahas also been very global over the years and yet till this day they still tend to be global and their games can survive for years because of how much it gives off to a player playing the game for fun.
@@ -186,3 +186,11 @@ I believits not a good idea because it doesnt serve as a good purpose for the in
 # september 30, 2025
 
 People use 67 as a joke of how a kid was at a basketball game and the team scored 67 points and once he made a video that went viral everyone started saying it and even people wrote songs about it saying how funny it is. But many peopl use it in a way that sounds unfunny though, for example based on how kids act in class they always yell out loud "67" to make everyone laugh when it isnt funny to just do that because that makes them seem corny.
+
+# october 14, 2025 
+
+my prompt was useed to create a drawing illlustrated by any image given to it and this runs well by how the coding mechanism is designed as in the system and I wouldnt cahnge anythimgh about this code becasue it works perfectly fine.
+
+# october 6, 2025
+
+AI wouldbe used regularly if i owned a school. The reeason why I say that is because AI often helps students focus and learn more about the task that they need help with.
