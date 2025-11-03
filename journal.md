@@ -204,3 +204,20 @@ my prompt was useed to create a drawing illlustrated by any image given to it an
 # october 6, 2025
 
 AI wouldbe used regularly if i owned a school. The reeason why I say that is because AI often helps students focus and learn more about the task that they need help with.
+
+# october  20, 2025
+
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |	Second      |	91A      |
+| Hardeep  |	Third       |	61F      |
+| Marla    |First       | 35B     |
+
+# october 27, 2025 
+
+| Name     | Main Dish | Dessert |
+| :------- | :-------- | :------ |
+| Fiona    | gado gado           |creme brulee|
+| Tobias   |shrimp cevishe           |french applecake          |
+| Leanne   |beef willington           |raspberry tiramisu         |
