@@ -191,6 +191,16 @@ People use 67 as a joke of how a kid was at a basketball game and the team score
 
 my prompt was useed to create a drawing illlustrated by any image given to it and this runs well by how the coding mechanism is designed as in the system and I wouldnt cahnge anythimgh about this code becasue it works perfectly fine.
 
+# november 3, 2025
+
+1. the problem is that the SNAP program, which helps families buy grocieries, ran out of funding
+
+2. technology helps by usintg apps, websites or other tech tools to connect people to local food banks, freee meal programs, or grocery stores
+
+3. challlenges include lack of internet access, no smartphone, and privacy concerns
+
+4. i would create an app called "food tinder," it would help people find nearby food banks, freee meal programs, and grocery stores with affordable options.
+
 # october 6, 2025
 
 AI wouldbe used regularly if i owned a school. The reeason why I say that is because AI often helps students focus and learn more about the task that they need help with.
