@@ -225,3 +225,7 @@ AI wouldbe used regularly if i owned a school. The reeason why I say that is bec
 # november 10, 2025
 
 Technology changed  the way people celebrate holidqays by how people nowadyas facetime, call, or send letters through emails for their grand kids or people who are family that are mainly  far away. These features nmake the holidays for people worse by how people nowadays all they do is just sit inside and be on their phone all day instead of visiting for the holidays, many others how ever may have benefits if things inn family are difficult for others. But moraly yes developes shopuld make privacy feayturtes for family only because what ever family thinks about and talks about stays in a signular family.
+
+# november 17, 2025
+
+yes im looking foward to thanksgiving break 
