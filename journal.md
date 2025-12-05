@@ -229,3 +229,7 @@ Technology changed  the way people celebrate holidqays by how people nowadyas fa
 # november 17, 2025
 
 yes im looking foward to thanksgiving break 
+
+# december 1, 2025
+
+one real job that requires the use of drones would be agencies, now agencies have a varietyu of sources asnd their salary can be from 70k to 180k dependoing onn wherre you wanan be in the agency and all youll ever need is a associates degree in oprder to get in, but if forn when ever reason i would ever want this job i would say yes because of how well it pays and how much ,omey you earn and trhe cool stuff your allowed to do in the job facility.
