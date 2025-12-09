@@ -233,3 +233,7 @@ yes im looking foward to thanksgiving break
 # december 1, 2025
 
 one real job that requires the use of drones would be agencies, now agencies have a varietyu of sources asnd their salary can be from 70k to 180k dependoing onn wherre you wanan be in the agency and all youll ever need is a associates degree in oprder to get in, but if forn when ever reason i would ever want this job i would say yes because of how well it pays and how much ,omey you earn and trhe cool stuff your allowed to do in the job facility.
+
+# december 9, 2025
+
+self driving cars seem likie the right diversity for the modern era we live in but mainly self driving cars are more dustruction then it is for benifical but as the self  driving car drove right past a school bus with a stop msign it would immediatly aatleast kill many kids along the proicess of getting home or getting to school. The AI challengesn with this would be the coding program only to stop when theres a stop sign on the road, and if i wasa a programer i would fix the ay the software is built and the wway that the format is stilkl intact.
