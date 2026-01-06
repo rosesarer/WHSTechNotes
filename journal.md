@@ -236,4 +236,9 @@ one real job that requires the use of drones would be agencies, now agencies hav
 
 # december 9, 2025
 
-self driving cars seem likie the right diversity for the modern era we live in but mainly self driving cars are more dustruction then it is for benifical but as the self  driving car drove right past a school bus with a stop msign it would immediatly aatleast kill many kids along the proicess of getting home or getting to school. The AI challengesn with this would be the coding program only to stop when theres a stop sign on the road, and if i wasa a programer i would fix the ay the software is built and the wway that the format is stilkl intact.
+self driving cars seem likie the right diversity for the modern era we live in but mainly self driving cars are more dustruction then it is for benifical but as the self  driving car drove right past a school bus with a stop msign it would immediatly aatleast kill many kids along the proicess of getting home or getting to school. The AI challengesn with this would be the coding program only to stop when theres a stop sign on the road, and if i wasa a programer i would fix the ay the software is built and the wway that the format is stilkl intact.'
+
+# december 15, 2025
+
+my plans forn winter break are to go driving around and see if thers any car meets.
+
