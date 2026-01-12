@@ -242,3 +242,7 @@ self driving cars seem likie the right diversity for the modern era we live in b
 
 my plans forn winter break are to go driving around and see if thers any car meets.
 
+# january 12, 2025 
+
+the harm that can happen in online spaces would be that many users could either get hacked even by the safety code or banned by another user who abuses admin, they help protect its community by addding safety features to the site they setup for the people who use it and developers choice affects the user by how they can bann the user for unnneccesary bans that make them seeem stupidand if developers ignoreed these safety features they would be sued by many families by who use the app or websitw they developed and no there are no other expplinations i can give about d=safety features.
+
