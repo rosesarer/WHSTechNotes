@@ -250,7 +250,11 @@ the harm that can happen in online spaces would be that many users could either 
 
 one way that technolgy can help society more is by making more add blockers that help companies and even people who can find things interesting many features like even firer wallas can make even security more better for peoiple in society.
 
-# january 29,2026
+# january 29, 2026
 
 Yes ive tooken the act and no i didnt achieve what i was aiming for but for next time ill make sure to improve my skills in listening insteaad of wondering off.
+
+# feburary 10, 2026
+
+to behave in a work environment you must be engaged on sometho=ing that you wanna do and be quiet while other people are working. 
 
