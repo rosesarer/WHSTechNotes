@@ -256,5 +256,9 @@ Yes ive tooken the act and no i didnt achieve what i was aiming for but for next
 
 # feburary 10, 2026
 
+1 no i dont enjoy foot ball becasue it seeems like a boring sport
+2 yes i watcherd the super bowl and it was nice to see all the football players hustling 
+3 i did watch it and my opinion based on it was how the people were mainly having fun which was fun.
+
 to behave in a work environment you must be engaged on sometho=ing that you wanna do and be quiet while other people are working. 
 
