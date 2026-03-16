@@ -262,3 +262,6 @@ Yes ive tooken the act and no i didnt achieve what i was aiming for but for next
 
 to behave in a work environment you must be engaged on sometho=ing that you wanna do and be quiet while other people are working. 
 
+#  march 2, 2026
+
+The job that i woiuld choose for technology would be engineering ebcasuse its more about vechuiles and other kinds of things baout tecchnoliogy and creativity.
