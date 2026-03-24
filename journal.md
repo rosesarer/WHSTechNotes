@@ -265,3 +265,7 @@ to behave in a work environment you must be engaged on sometho=ing that you wann
 #  march 2, 2026
 
 The job that i woiuld choose for technology would be engineering ebcasuse its more about vechuiles and other kinds of things baout tecchnoliogy and creativity.
+
+# march 23, 2026
+
+i chose my bracket through the codes that werre given to me and the results from the irst weekend were amazing to em and using data can predict things bythe anazlysis onf the grammer gave me , this computer progam use this type of data by chrting down the plots in the system tomake bettter points to a person  
