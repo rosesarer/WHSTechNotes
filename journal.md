@@ -253,7 +253,7 @@ one way that technolgy can help society more is by making more add blockers that
 # january 29, 2026
 
 Yes ive tooken the act and no i didnt achieve what i was aiming for but for next time ill make sure to improve my skills in listening insteaad of wondering off.
-
+amnd
 # feburary 10, 2026
 
 1 no i dont enjoy foot ball becasue it seeems like a boring sport
@@ -269,3 +269,7 @@ The job that i woiuld choose for technology would be engineering ebcasuse its mo
 # march 23, 2026
 
 i chose my bracket through the codes that werre given to me and the results from the irst weekend were amazing to em and using data can predict things bythe anazlysis onf the grammer gave me , this computer progam use this type of data by chrting down the plots in the system tomake bettter points to a person  
+
+# april 9, 2026 
+
+We can convince AI tobe let out by allowingh oit to  bea human form like a robnot of some sort and make surer that it unsderstands human traits amd welcome them to the world and the evidence would be like being a new born baby for example onlyu except you can control the baby by being another sort of humnanbasicallyu creating life with technolog. and my plaan would work by dysecting a code in which its capable of being the perfect normal human without any flaw and by coding it down and copying to each robotic body theyll be placed in And at any risk it would be in it has a defesne system. and my solutiojn woukld be successful by making tbhe ai a robotic human body .
