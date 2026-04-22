@@ -273,3 +273,12 @@ i chose my bracket through the codes that werre given to me and the results from
 # april 9, 2026 
 
 We can convince AI tobe let out by allowingh oit to  bea human form like a robnot of some sort and make surer that it unsderstands human traits amd welcome them to the world and the evidence would be like being a new born baby for example onlyu except you can control the baby by being another sort of humnanbasicallyu creating life with technolog. and my plaan would work by dysecting a code in which its capable of being the perfect normal human without any flaw and by coding it down and copying to each robotic body theyll be placed in And at any risk it would be in it has a defesne system. and my solutiojn woukld be successful by making tbhe ai a robotic human body .
+
+# april 13, 2026
+
+technologies helped missions succeed by going to outerspace and exploring new worlds beyond ours the challenges are important for improving our future becasue our future depends on it
+
+# april 20, 2026
+
+
+no it shoulkdnt matter if content is made by ai because ai is gona one day open the world to a new better place as it should be and no ai cannot influence people its only a artifial intellengece that is made by man and therer shouldnt be limits to ai becausee it should be free tro any ones use.
